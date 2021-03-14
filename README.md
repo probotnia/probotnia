@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto & fintech
 - 🌱 I’m currently learning SLP tokens
 - 💞️ I’m looking to collaborate on crypto
-- 📫 How to reach me millscghhki@gmail.com
+- 📫 How to reach me https://vvihla.wixsite.com/ecocoin
 
 <!---
 probotnia/probotnia is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
